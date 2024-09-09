@@ -1,3 +1,3 @@
 # essay
 
-![Uploading image.png…]()
+![/图片1.gif]
